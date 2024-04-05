@@ -1,5 +1,6 @@
 # Accenture-Data-Analytics-Virtual-Programme
 Background
+[Accenture North America_Qr4XvnnLJ8KxDYdgK_1708849144607_completion_certificate.pdf](https://github.com/BALUDK08/Accenture-Data-Analytics-Virtual-Programme/files/14878503/Accenture.North.America_Qr4XvnnLJ8KxDYdgK_1708849144607_completion_certificate.pdf)
 
 Social Buzz is a media company who want:
 
